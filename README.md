@@ -36,7 +36,7 @@ Skilled in SQL, Excel, Power BI | Eager to work on real-life data problems
 ---
 
 ### 📧 Contact:
-[LinkedIn](https://www.linkedin.com/in/your-link)  
+[LinkedIn](https://www.linkedin.com/in/vishal-sharma-789340301?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 Email: itvishal2003@gmail.com  
 
 Thank you for visiting my project! ⭐
